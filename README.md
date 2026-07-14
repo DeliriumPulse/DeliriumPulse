@@ -15,7 +15,7 @@ I am strongest in small-team work where the problem is messy but the outcome is 
 
 - Portfolio: https://www.zackwhitson.com
 - Resume: https://www.zackwhitson.com/files/Zack_Whitson_Resume.pdf
-- Upwork: Top Rated Plus, 100% Job Success, $50K+ earned
+- Upwork: https://upwork.com/freelancers/zackwhitson Top Rated Plus, 100% Job Success, $50K+ earned
 
 ## Contact
 
